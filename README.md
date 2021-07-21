@@ -3,6 +3,7 @@ Study Abroad Resources
 
 
 **Scholarship Spreadsheet Template**
+
 Organize the Scholarships you find and keep track of application due dates and eligibility requirements. 
 https://www.collegexpress.com/articles-and-advice/financial-aid/blog/scholarship-search-spreadsheet-template/
 
@@ -40,6 +41,7 @@ https://www.profellow.com/
 
 
 **Art Residency**
+
 Did you know you can get paid to do your art? Artists Residencies aka Artist in Residence (AiR) programs pay artists of all types to come to their city, university, or organization to create art and teach workshops. Some even offer free living accomodations and stipends for food, supplies, research, conferences, and travel. If you have not created any art yet, get started now. Build an art portfolio on a free website using free plain templates on WordPress. People can follow and share your art with others. 
 
 ResArtis
