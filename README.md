@@ -27,6 +27,8 @@ https://www.eacea.ec.europa.eu/scholarships/emjmd-catalogue_en
 
 
 
+
+
 International Education Financial Aid (Search Grants and Scholarships) 
 https://www.iefa.org/
 
@@ -44,12 +46,16 @@ https://www.hotcoursesabroad.com/study/international-scholarships/singapore/qn/c
 https://www.gooverseas.com/blog/study-abroad-scholarships-grants
 
 
+
+
 **PhD Doctoral programs**
 
 Remember earning a PhD is free. Every university will offer a full tuition scholarship + living stipend to earn your doctoral degree at their university. If you want to get a PhD look at programs while you're still working on your bachelor's or master's to plan your classes to get into the PhD programs you're interested in. Reach out to professors at the Universities you want to attend. Use the faculty search feature to find professors in your field of study and see what they are researching. They will be happy to answer any questions you have about potentially attending their classes because they get paid when you enroll. Email them to ask any questions you have about potentially attending their master's or doctoral programs.
 
 Pro Fellow
 https://www.profellow.com/
+
+
 
 
 **Art Residency**
