@@ -29,16 +29,16 @@ https://www.eacea.ec.europa.eu/scholarships/emjmd-catalogue_en
 
 
 
-International Education Financial Aid (Search Grants and Scholarships) 
+**International Education Financial Aid** (Search Grants and Scholarships) 
 https://www.iefa.org/
 
 
 
-Institute of International Education
+**Institute of International Education**
 https://www.iie.org/Connect/Students
 
 
-Hot Courses Abroad
+**Hot Courses Abroad**
 https://www.hotcoursesabroad.com/study/international-scholarships/singapore/qn/cn/168/qid/catid/scholarship.html#search&countryId=9&countyId=1&nationCode=211&nationCntryCode=211&userQual=25372-763-1&userGrade=27591&gradeScore=3.8&studyAbroad=Y&studyOnline=N&studyCross=N&studyDomestic=N&studyPartTime=N&orderBy=SCHAVAIL&scholarSearch=true&manStdyAbrdFlg=N
 
 
