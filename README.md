@@ -83,3 +83,54 @@ https://www.pw.org/conferences_and_residencies
 Culture 360 for Academics and Artists: International Student Study Abroad in Asia and Europe 
 https://culture360.asef.org/themes/mobility/
 
+
+Earn Income Online while Studying Abroad
+Free TESOL Certification
+Arizona State University
+ https://www.coursera.org/professional-certificates/arizona-state-university-tesol
+
+Teach English Online without a degree
+https://www.goabroad.com/articles/teach-abroad/online-english-teaching-jobs-no-degree
+
+Palfish
+https://www.ipalfish.com/teacher/
+Requirements: You do not need a degree, certification, nor working experience to work at Palfish, but you do need to be fluent in English. Just send a video with your application, and if you’re enthusiastic, friendly, and hard working, you are guaranteed a spot on the Palfish team.
+Average earnings: ~$10-18 per class.
+
+Cambly
+https://www.cambly.com/en/tutors?lang=en
+Requirements: Everyone all over the world can become a Cambly teacher. There are no special requirements—not even teaching experience. The application process is actually more concentrated on how good your internet connection is, and the quality of your devices.
+Average earnings: ~$10 per class.
+
+Preply
+https://www.Preply.com
+$10 - 45 USD /hour
+Online ESL Teaching Job  No Degree Required. No Certification Required. 
+
+28 of the best paying online teaching jobs in 2021
+https://www.teachaway.com/blog/best-paying-online-teaching-jobs?amp
+
+
+
+10 Countries to Teach English Abroad Without a Degree in 2021
+https://www.henryharvin.com/blog/teach-english-abroad-without-a-degree/amp/
+#1. Cambodia
+#2. Jordan
+#3. Vietnam
+#4. Mexico
+#5. Argentina
+#6. Brazil
+#7. Costa Rica
+#8. Russia
+#9. Romania
+#10. Georgia
+Job Boards
+Online English Teaching Jobs
+https://oetjobs.com/teaching-english-online/
+OET Jobs is a website with a comprehensive list of ESL Teaching Jobs worldwide. Requirements vary depending on the company. Most companies require a bachelor's degree (in any subject) and only prefer a certificate. Some do not require a degree but prefer or require a TESOL or TEFL certificate.
+
+
+Dave's ESL Cafe
+https://www.eslcafe.com/jobs/international
+Remote Work from Home Online Teaching Jobs and some ESL Teaching Jobs located worldwide. Some offer free housing or a housing allowance. 
+
